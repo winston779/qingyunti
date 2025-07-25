@@ -1,6 +1,6 @@
 # 青云梯机场官网地址
 
-最新地址：[qingyunti.pro](https://ivt01.qytaff.cc/register?aff=iWOzAKKp)
+最新地址：[qingyunti.pro](https://ivt02.qytaff.cc/register?aff=iWOzAKKp)
 
 ## 青云梯介绍
 
